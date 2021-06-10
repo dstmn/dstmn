@@ -1,8 +1,9 @@
 # welcome to dst.mn
 
-This site is under construction, but it is John's homepage
+This site is under construction
 
-### John is a
+### Dustman is a
+- Wabash alum
 - coffee snob
 - Californian
 - soccer fan
