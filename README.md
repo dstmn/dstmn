@@ -1,10 +1,8 @@
 # welcome to dst.mn
 
-This site is under construction
-
 ### Dustman is a
 - Wabash alum
-- coffee snob
 - Californian
+- coffee snob
 - soccer fan
-- shaman main
+- blizzard sorceress
