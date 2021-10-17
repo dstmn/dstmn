@@ -1,4 +1,5 @@
-# welcome to dst.mn
+# dst.mn
+
 
 ### Dustman is a
 - Wabash alum
