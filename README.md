@@ -5,4 +5,4 @@
 - Californian
 - coffee snob
 - soccer fan
-- blizzard sorceress
+- half-elf warlock
