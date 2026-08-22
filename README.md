@@ -24,6 +24,6 @@ I'm happy to discuss how my skills could best serve your organization, but here 
 
 *"Hiring John was the best decision I ever made"* **- coworker & former board member**, Mercy Beyond Borders
 \
-\
+---
 \
 Want to talk to John about how he could support your org? Reach out [here](https://tally.so/r/9qAkxY). Thanks!
