@@ -12,7 +12,7 @@ I'm happy to discuss how my skills could best serve your organization, but here 
 - Partner with leadership and finance teams to develop, monitor, and report on budgets
 - Serve as a thought partner and context reference for senior leadership
 - Support annual audit processes for fiscal statements, retirement plans, and workers' comp
-\
+
 \
 ### What Senior Leaders are saying about John:
 
