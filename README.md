@@ -23,7 +23,7 @@ I'm happy to discuss how my skills could best serve your organization, but here 
 *"John's leadership was invaluable, particularly in navigating the complexities of a small church organization during the financial difficulties of the Pandemic. His dedication, strategic insight, and people-centered approach made a lasting impact."* **- board chair**, Highway Community
 
 *"Hiring John was the best decision I ever made"* **- coworker & former board member**, Mercy Beyond Borders
-\
+
 ---
-\
+
 Want to talk to John about how he could support your org? Reach out [here](https://tally.so/r/9qAkxY). Thanks!
