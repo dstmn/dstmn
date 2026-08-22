@@ -16,10 +16,10 @@ I'm happy to discuss how my skills could best serve your organization, but here 
 
 ### What Senior Leaders are saying about John:
 
-*"Every time I talk to my Executive Director, he mentions how grateful he is for John"* **- board member, Salmon Creek**
+*"Every time I talk to my Executive Director, he mentions how grateful he is for John"* **- board member**, Salmon Creek
 
-*"Hiring John was the best decision I ever made"* **- former board member, Mercy Beyond Borders**
+*"Hiring John was the best decision I ever made"* **- former board member**, Mercy Beyond Borders
 
-*"John's leadership was invaluable, particularly in navigating the complexities of a small church organization during the financial difficulties of the pandemic. His dedication, strategic insight, and people-centered approach made a lasting impact."* **- former board chair, Highway Community**
+*"John's leadership was invaluable, particularly in navigating the complexities of a small church organization during the financial difficulties of the pandemic. His dedication, strategic insight, and people-centered approach made a lasting impact."* **- former board chair**, Highway Community
 
-*"Whenver we had an important decision, I always wanted to make sure we had John in the room, because then I knew the right things would be considered, and we wouldn't miss any details."* **- founder, Apropose**
+*"Whenver we had an important decision, I always wanted to make sure we had John in the room, because then I knew the right things would be considered, and we wouldn't miss any details."* **- founder**, Apropose
