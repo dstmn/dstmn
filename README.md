@@ -1,5 +1,5 @@
 ### John Dustman
-## Fractional Finance & Administration Leadership
+## Fractional Leader, Finance & Administration
 
 I am available for a [fractional](https://www.forbes.com/councils/forbesbusinesscouncil/2025/12/18/why-we-may-soon-see-an-increase-in-fractional-leadership-at-nonprofits/) contract role supporting your organization's senior leadership with HR, business operations, and finance. I bring warmth, calm, and follow-through, and can context switch seamlessly between detail-focused execution and big picture strategy. You can read more below or contact me [here](https://tally.so/r/9qAkxY).
 
@@ -15,7 +15,7 @@ I'm happy to discuss how my skills could best serve your organization, but here 
 - Support annual audit processes for fiscal statements, retirement plans, and workers' comp
 
 
-## What Senior Leaders are saying about John:
+### What Senior Leaders are saying about John:
 
 *"Every time I talk to my Executive Director, he mentions how grateful he is for John"* -**board member**, Salmon Creek
 
