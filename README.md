@@ -13,7 +13,7 @@ I'm happy to discuss how my skills could best serve your organization, but here 
 - Serve as a thought partner and context reference for senior leadership
 - Support annual audit processes for fiscal statements, retirement plans, and workers' comp
 
-\
+
 ### What Senior Leaders are saying about John:
 
 *"Every time I talk to my Executive Director, he mentions how grateful he is for John"* **- board member**, Salmon Creek
