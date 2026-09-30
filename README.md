@@ -5,7 +5,7 @@ I am available for a [fractional](https://www.forbes.com/councils/forbesbusiness
 I bring warmth, calm, and follow-through, and can context switch seamlessly between detail-focused execution and big picture strategy. You can read more below or contact me [here](https://tally.so/r/9qAkxY).
 
 ## About John
-I have 13+ years of nonprofit operations management experience. I currently serve as COO at [Mercy Beyond Borders](https://www.mercybeyondborders.org/), and as the Fractional Director of Finance and Administration for both [Salmon Creek Farm Arts](https://salmoncreekfarm-arts.org/) and [Highway Community](https://www.highway.org/). For more details on my background, visit my [LinkedIn](https://www.linkedin.com/in/dustmanj/).
+I have 13+ years of nonprofit operations management experience. I currently perform fractional finance and administration work for [Mercy Beyond Borders](https://www.mercybeyondborders.org/), [Salmon Creek Farm Arts](https://salmoncreekfarm-arts.org/), and [Highway Community](https://www.highway.org/). For more details on my background, visit my [LinkedIn](https://www.linkedin.com/in/dustmanj/).
 
 ## Scope
 I'm happy to discuss how my skills could best serve your organization, but here are some of my responsibilities with current clients:
@@ -24,7 +24,7 @@ I'm happy to discuss how my skills could best serve your organization, but here 
 
 *"John's leadership was invaluable, particularly in navigating the complexities of a small church organization during the financial difficulties of the Pandemic. His dedication, strategic insight, and people-centered approach made a lasting impact."* -**board chair**, Highway Community
 
-*"Hiring John was the best decision I ever made"* -**coworker & former board member**, Mercy Beyond Borders
+*"John's diligence, both in the quality of his work and in his communication, has been greatly admired and appreciated"* -**investment manager**, Mercy Beyond Borders
 
 
 ---
