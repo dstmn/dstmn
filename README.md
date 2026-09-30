@@ -5,7 +5,7 @@ I am available for a [fractional](https://www.forbes.com/councils/forbesbusiness
 I bring warmth, calm, and follow-through, and can context switch seamlessly between detail-focused execution and big picture strategy. You can read more below or contact me [here](https://tally.so/r/9qAkxY).
 
 ## About John
-I have 13+ years of nonprofit operations management experience. I currently perform fractional finance and administration work for [Mercy Beyond Borders](https://www.mercybeyondborders.org/), [Salmon Creek Farm Arts](https://salmoncreekfarm-arts.org/), and [Highway Community](https://www.highway.org/). For more details on my background, visit my [LinkedIn](https://www.linkedin.com/in/dustmanj/).
+I have 13+ years of nonprofit operations management experience. I'm currently serving as a fractional finance and administration leader for [Salmon Creek Farm Arts](https://salmoncreekfarm-arts.org/), [Highway Community](https://www.highway.org/), and [Mercy Beyond Borders](https://www.mercybeyondborders.org/). For more details on my background, visit my [LinkedIn](https://www.linkedin.com/in/dustmanj/).
 
 ## Scope
 I'm happy to discuss how my skills could best serve your organization, but here are some of my responsibilities with current clients:
